@@ -3,7 +3,7 @@ Queen777 is Philipines top online casino with strong reputation. With frequent p
 
 ![logo 3](https://github.com/queen777-jili-casino/Queen777casino/assets/141820939/e698a573-5166-4979-9f21-9b7a72753c77)
 
-# (https://www.queen777.com "Queen777") Philippines most trusted online casino
+# [I'm an inline-style link with title](https://www.queen777.com "Queen777") Philippines most trusted online casino
 Queen777 has been in the industry for a short time and has gain strong reputation in the Philippines Online Casino scene with frequent proof of withdrawal to GCASH and PAYMAYA. With popular games from JILI Casino like SuperAce, Golden Empire, Fortune Gems and Money Coming, players get the best online gaming experience with Queen777
 
 # Queen777 & (https://www.jilicasino.xyz "JILI Casino Welcome Bonus")
